@@ -1,3 +1,3 @@
 # Randomowe rzeczy
 
-Znalazlem gdzies na podlodze.
+Znalazlem je gdzies na podlodze.
